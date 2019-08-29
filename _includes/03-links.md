@@ -1,1 +1,1 @@
-[Github](https://github.com/eahar123)
+[Github Profile](https://github.com/eahar123)
